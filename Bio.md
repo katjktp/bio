@@ -7,4 +7,8 @@ Comunicadora social y periodista, especialista en periodismo polìtico y económ
 
 ## Me gusta
 
-Melómana, vegana, animalista. 
+Melómana, vegana, animalista.
+
+## Experiencia
+
+Redactora web en Caracol Radio 
